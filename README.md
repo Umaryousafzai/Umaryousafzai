@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Umaryousafzai
+- 👋 Hi, I’m Umaryousafzai
 - 👀 I'm a Computer Science student at the Aptech!
 
 - I'm working at Magical Digits as a Data Entry and Customer Relation Support Domain-based in The United States Small business Company 
